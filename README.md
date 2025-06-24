@@ -1,4 +1,4 @@
-![Banner](https://i.ibb.co/vYnBkm6/github-banner.png)
+![Banner](https://ibb.co/gMd00bW7)
 
 # 👋 Hi, I'm Sanjib Kumar Shil
 
